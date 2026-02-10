@@ -11,7 +11,7 @@ Type your name, your favorite animal on any of the line below. When you are done
 3. Jeremias Garcia, Cat
 4. _
 5. _Aldo Marmolejo, Dog
-6. _
+6. _Maximus Sandoval, Gorillas
 7. _
 8. _
 9. _
