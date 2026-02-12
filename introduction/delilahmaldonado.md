@@ -1,0 +1,3 @@
+My Name is Delilah Maldonado. 
+I'm interested in comupter science because it's something I've always thought was interesting but never understood and still struggle to understand. I'm hoping this can change after taking the class and advancing my knowledge on computer science. I know that this class will also require me to deal with errors and problem solve which is something I like to think I'm good at but I would like to see it progress with this class.
+One thing I'm curious about relating to technology is how AI has advanced so much in what seems like a short amount of time and the possible effects of the widespread use of AI on our enviornment, critical thinking skills, and workforce. 
