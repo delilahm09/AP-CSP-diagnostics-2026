@@ -22,7 +22,7 @@ Type your name, your favorite animal on any of the line below. When you are done
 14. Kimberly Chanchavac, Dog
 15. _
 16. _
-17. _
+17. Delilah Maldonado, Tiger 
 18. _
 19. _
 20. _
